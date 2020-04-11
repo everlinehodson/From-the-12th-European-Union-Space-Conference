@@ -1,0 +1,2 @@
+# From-the-12th-European-Union-Space-Conference
+At the 12th EU Space Conference in Brussels, Thierry Breton made his first appearance as the new European Commissioner for Internal Market, and a remarkable appearance it was. In his position, Breton is charged with overseeing two of the European Commission’s Directorates General, that of Communications Networks https://insidegnss.com/category/a-system-categories/galileo/ .
